@@ -6,6 +6,6 @@
 
 - 📫 How to reach me: G00296398@stu.raritanval.edu
 
-- I'm nearing completion of the Associate's Degree for Computer Programming and hope to an internship after graduating to improve my skills.
+- I'm nearing completion of the Associate's Degree for Computer Programming and hope to get an internship after graduating to get more experience.
 
 - Interests 🎶🏀🏈🍴🏃🌄🚗
